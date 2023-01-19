@@ -10,7 +10,7 @@
 
 - 📫 You can reach me at **haidersummaiya@gmail.com**
 
-- ⚡ Fun fact **i**
+- ⚡ Fun fact **I love reading fiction because it helps me escape reality.**
 
 - 📝 [Resume](https://drive.google.com/file/d/1J3z1KUlLrSL1NK3JvD2siJRX0jW0VOpS/view?usp=sharing)
 
