@@ -13,7 +13,7 @@
 
 - ⚡ Fun fact **I love reading fiction because it helps me escape reality.**
 
-- 📝 [Resume](https://drive.google.com/file/d/1eo-86I22rtseptmlpwir2fvNMGOSXcs9/view?usp=sharing)
+- 📝 [Resume](https://drive.google.com/file/d/158buuoI5pOC9vfblBWbjl0juD7K96_3m/view?usp=sharing)
 
 ## :email: Find me on:  
 <p align="left">
